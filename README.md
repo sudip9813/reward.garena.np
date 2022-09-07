@@ -1,2 +1,2 @@
-# reward.garena.np
+# http//reward.ff.garena.com
 Abc
